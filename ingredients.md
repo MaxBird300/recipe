@@ -5,5 +5,5 @@
 * 3 tsp salt
 * 1/2 onion
 * 2 tbsp coriander
-This should be served cold
-Eat with Tortilla Chips
+* 4 tomatoes
+* Tortilla Chips
