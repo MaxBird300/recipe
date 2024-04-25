@@ -7,5 +7,4 @@
 * 2 tbsp coriander
 * 4 tomatoes
 * Tortilla Chips
-
-This should be served cold
+* 
