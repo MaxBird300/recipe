@@ -1,7 +1,9 @@
 # Instructions
 
 * chop avocados
+* dice the tomatoes
 * chop onion
 * squeeze lime
 * add salt
-* and mix well
+* mix well
+* Serve cold
